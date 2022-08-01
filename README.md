@@ -29,7 +29,7 @@ As a software engineer, I've spent most of my professional life jumping in-betwe
 
 Most of my career was focused around fintech, crypto and web3 ranging from personal and client projects, startups and traditional companies. I've also spent some time as a product person. 
 
-I also **really** like ☕ 
+I also **really** like ☕  
 
 ![tumblr_np6fa76FGY1ticmhoo1_500.gif](Gabriel%20Ferraz%20cdd42ad1dbdc43f6b01571fb2b9bafc8/tumblr_np6fa76FGY1ticmhoo1_500.gif)
 
